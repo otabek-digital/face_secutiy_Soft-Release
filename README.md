@@ -1,1 +1,2 @@
 # face_secutiy_Soft-Release
+# hali_dasturning_yangi_verialarini_chiqarmaymiz_ular_tahminan_2026.11.01-2027.03.16_larda_chiqishi kutilmoqda
