@@ -1,2 +1,2 @@
-# face_secutiy_Soft-Release
-# hali_dasturning_yangi_verialarini_chiqarmaymiz_ular_tahminan_2026.11.01-2027.03.16_larda_chiqishi kutilmoqda
+# face secutiy Soft-Release
+# hali dasturning yangi verialarini chiqarmaymiz ular tahminan 2026.11.01-2027.03.16 oralig'ida chiqishi kutilmoqda
